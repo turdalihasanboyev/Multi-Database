@@ -1,0 +1,1 @@
+## Muvaffaqqiyatsiz tugatildi
